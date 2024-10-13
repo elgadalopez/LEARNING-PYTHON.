@@ -1,1 +1,1 @@
-# LEARNING-PYTHON
+# gatau malas
